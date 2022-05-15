@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Swapnil-1205
-- 👀 I’m interested in Developer jobs
+- 👀 I’m interested in Technical Support Team Leader or Developer jobs
 - 🌱 I’m currently learning HTML, CSS, JAVA, Python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 0452662661
